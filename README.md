@@ -1,10 +1,5 @@
-- 👋 Hi, I’m @isoxlr
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+BASE AIRDROP FREE NFT
+https://epic-base-airdrop.nfts2.me/
 
-<!---
-isoxlr/isoxlr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+📜SCROLL AIRDROP FREE NFT
+https://isoxlr.nfts2.me/
